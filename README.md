@@ -1,1 +1,1 @@
-https://ramneek-singh04.github.io./
+https://ramneek-singh04.github.io/
